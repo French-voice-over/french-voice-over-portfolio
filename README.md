@@ -25,4 +25,4 @@ Feel free to visit my official website to listen to samples and learn more about
 ## 📫 Contact
 
 - Website: https://www.yourfrenchvoiceover.com
-- LinkedIn: https://www.linkedin.com/in/michelrousseau-voice
+- LinkedIn: https://www.linkedin.com/in/frenchvoiceover
